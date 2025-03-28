@@ -1,0 +1,2 @@
+# trampstamp
+Stories and ideas
